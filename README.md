@@ -1,3 +1,4 @@
 - Sou Vitor Gabriel da Silva
 - meu @ escola é vitor.gabriel.silva09@escola.pr.gov.br
-- estudo no dr. Generoso M
+- estudo no dr. Generoso Marques
+- estudo computação 💊
